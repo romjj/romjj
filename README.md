@@ -7,7 +7,7 @@
 - ⚡ Fun fact:
     - jiu jitsu practitioner and teacher
     - pet father
-    - chef in his spare time and food lover all the time
+    - Masterchef in his spare time and food lover all the time
 
 <!---
 romjj/romjj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
